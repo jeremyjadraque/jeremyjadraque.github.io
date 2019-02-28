@@ -1,1 +1,0 @@
-# jeremyjadraque.github.io
